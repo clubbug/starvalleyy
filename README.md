@@ -1,1 +1,1 @@
-![Untitled1067_20241102104132](https://github.com/user-attachments/assets/8c75184d-eb98-4164-ae2b-9a6c1fa1acef)
+![Tumblr_l_408020334527934](https://github.com/user-attachments/assets/860fcc90-2f46-4bad-98b4-9196515dd3be)
